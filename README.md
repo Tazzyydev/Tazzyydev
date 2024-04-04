@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Tazzyydev
+- 👀 I’m interested in coding, web development, discord development.
+- 🌱 I’m currently learning Python.
+- 📫 How to reach me: You can reach me via email at tazzy.dev@gmail.com or on Discord tazzyy.dev.
+- 😄 Pronouns: He/Him
+- ⚡ Discord server: https://dsc.gg/synthx
